@@ -1,0 +1,1 @@
+# Yetzyow-Ludologist-UK-Trademark-Declaration
