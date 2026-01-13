@@ -10,7 +10,7 @@ Signed: **Yetzyow Ludologist**
 ---
 
 ## Loyalty Declaration
-I solemnly declare my loyalty to the **science of England** and commit to preserving its culture through the **experimental and academic design of serious video games**.  
+I solemnly declare my loyalty to the **science of United Kingdom** and commit to preserving its culture through the **experimental and academic design of serious video games**.  
 This commitment reflects my dedication to advancing knowledge, fostering innovation, and ensuring that the cultural and scientific heritage of England is honored and sustained through my research and creative work.
 
 ---
